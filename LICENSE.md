@@ -1,4 +1,4 @@
-# 
+# Enhance Windscribe VPN for PC | Windscribe VPN for Windows with vip Windscribe VPN for PC | Windscribe VPN for Windows Service | server-locations + no-logs-policy, the #1 service.
 
 
 
